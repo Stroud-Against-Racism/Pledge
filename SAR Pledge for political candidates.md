@@ -2,7 +2,7 @@
 
 WE PLEDGE TO TAKE RESPONSIBILITY FOR RECOGNISING AND UNLEARNING RACISM AND WHITE SUPREMACY within our organisation and associated activist networks. We accept that this is a complicated process and we will work hard in good faith to see it through.
 
-WE PLEDGE TO BE RESPONSIBLE BOTH AS INDIVIDUALS AND AS A PARTY OR ORGANISATION to hold our candidates, representatives and spokespeople to account when sharing views, content, images or messaging that can be understood to be racist.
+WE PLEDGE TO BE RESPONSIBLE BOTH AS INDIVIDUALS AND AS MEMBERS OF A PARTY OR ORGANISATION to hold our councillors, candidates, representatives and spokespeople to account when sharing views, content, images or messaging that can be understood to be racist.
 
 WE PLEDGE TO FOCUS ON EDUCATION WITHIN OUR PARTY OR ORGANISATION and to offer opportunities for our members to grow and unlearn any racist or unconscious biases they may have.
 
